@@ -42,6 +42,8 @@ https://user-images.githubusercontent.com/65663124/235992291-1a7728bb-dfe7-4998-
 
 
 ## Contact Information
-https://www.linkedin.com/in/pravinraut16/
+https://www.linkedin.com/in/abhishek-pokale-980883228/
+https://www.linkedin.com/in/tanmay-singh-228097272/
+https://www.linkedin.com/in/aryan-saklani-87706b21b/
 
 
